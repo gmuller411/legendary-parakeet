@@ -1,5 +1,5 @@
 _config.yml
-title: Grace's Website # The top-level website title
+title: Grace's Website 
 description: This is me sstruggling to use GitHub. :[
 
 remote_theme: pages-themes/cayman@v0.2.0 # Establishes a theme
