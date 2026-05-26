@@ -1,2 +1,2 @@
 # If you're seeing this, it loaded! Hurray! Grace Made a website!
-![Katharine Hepburn](https://static.wikia.nocookie.net/sillyman/images/1/14/Tbh.webp/revision/latest/scale-to-width-down/1000?cb=20250114184629)
+![Katharine Hepburn](https://i.pinimg.com/originals/dc/31/a2/dc31a2039bd7f3b8c5c6b61cda6f27ca.gif)
