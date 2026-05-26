@@ -1,3 +1,3 @@
-# Legendary Parakeet 2 
+# Legendary Parakeet 
 
 Hello World!
