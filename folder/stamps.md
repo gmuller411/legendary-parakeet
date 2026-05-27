@@ -5,3 +5,4 @@ Oh, you came to see my stamps? OK :)
 ![apple](https://64.media.tumblr.com/0d2b4a8e0e008752282d4072afd93149/f71abaa2dda21587-ad/s250x400/a4e695bc30e9a96128f6dcab22fa51afaae4be00.gif) ![les](https://64.media.tumblr.com/bae66a4afc8fa99017b1bf5926e70f1f/c3c018d4e4477a9b-b8/s250x400/206007e6185c9dfed290c7a634ddcc35cf2496bb.pnj) 
 ![clown](https://64.media.tumblr.com/142e011e28764a0755ce15e462766c6b/b269e70333ece861-d9/s100x200/38dd2ff7683f101f855c3988c58afb14ffca0680.pnj) ![apple](https://64.media.tumblr.com/f27d1dfb3107f1fd411c11b885b9d071/610d6b3a6dc8b4d5-d7/s250x400/7fd4a6b706d279113152b4deda069d36a83c65df.pnj) ![kitten](https://64.media.tumblr.com/bbfa369eb2a04019c8dc2ba88cdbf898/b3d020bb4d6ec7c0-d2/s100x200/c25eb47f5ffad0611a5aeeaf30df147afbcb00d6.pnj)
 
+Go back to [index](index)
